@@ -3,7 +3,7 @@
 
 
 ---
-![Alt Text](https://i.ibb.co.com/9HrXkdgd/Ruhul-amin.png)
+![Alt Text](https://i.ibb.co.com/ns7y8ysG/Ruhul-amin-3.png)
 
 ---
 
